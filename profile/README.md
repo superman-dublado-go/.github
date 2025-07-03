@@ -2,11 +2,11 @@
 
 𝔸𝕤𝕤𝕚𝕤𝕥𝕚𝕣 Superman 𝟚𝟘𝟚𝟝 𝔽𝕚𝕝𝕞𝕖 ℂ𝕠𝕞𝕡𝕝𝕖𝕥𝕠 𝔻𝕦𝕓𝕝𝕒𝕕𝕠 ℍ𝕕
 
-### <a href="" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
+### <a href="https://is.gd/OmyAyn" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
 
-### <a href="" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
+### <a href="https://is.gd/OmyAyn" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
 
-### <a href="" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
+### <a href="https://is.gd/OmyAyn" rel="nofollow">➤ ► CLIQUE AQUI PARA Baixar AGORA</a>
 
 ### **🏠 *Superman* – Visão Geral Aguardada**
 **Gênero:** Ação e Comédia de Espionagem | **Diretor:** Sajid Khan (rumores)
